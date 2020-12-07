@@ -1,1 +1,1 @@
-A fast rabbit is overconfident during a race with the tortoise. The rabbit runs fast and realizes that the tortiose is far behind.
+A fast rabbit is overconfident during a race with the tortoise. The rabbit runs fast and realizes that the tortiose is far behind. Then the rabbit decides to take an nap because the tortoise is not yet caught up. By the time the rabbit wakes up the tortiose has finished the race and the the tortoise won.
