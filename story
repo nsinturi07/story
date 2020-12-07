@@ -1,0 +1,1 @@
+A fast rabbit is overconfident during a race with the tortoise. The rabbit runs fast and realizes that the tortiose is far behind.
